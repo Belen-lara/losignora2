@@ -3,4 +3,4 @@ Ejercicio del grupo 4 después de ser olimpicamente ignorados por dos días segu
 javi: cabeza
 nini: manitos
 fallon: patitas 
-alex: colitas
+alex: colitas negritas con manchas azules
