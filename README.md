@@ -5,5 +5,7 @@ nini: manitos manitos chiquitas
 javi: cabeza chasconcita, nariz de aceituna
 nini: manitos
 fallon: patitas 
+alex: colitas negritas con manchas azules
 alex: colitas
 Belen también queria 
+
